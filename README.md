@@ -9,14 +9,12 @@
 + 7、看广告赚积分方式，可对接小程序流量主，快速裂变
 + ## 现在全网最低价，只要9.8元
 + ## 微信：waz1612
-[![qV6KeS.md.jpg](https://i.niupic.com/images/2022/03/22/9WX1.jpg)]
-[![qV6KeS.md.jpg](https://i.niupic.com/images/2022/03/22/9WX2.jpg)]
-[![qV6KeS.md.jpg](https://i.niupic.com/images/2022/03/22/9WWY.jpg)]
-[![qV6Mdg.md.jpg](https://i.niupic.com/images/2022/03/22/9WVC.jpg)]
-[![qV6Mdg.md.jpg](https://i.niupic.com/images/2022/03/22/9WVF.jpg)]
-[![qV66Qx.png](https://i.niupic.com/images/2022/03/22/9WVD.jpg)]
-[![qV6KeS.md.jpg](https://i.niupic.com/images/2022/03/22/9WVH.jpg)]
-[![qV6KeS.md.jpg](https://i.niupic.com/images/2022/03/22/9WVG.jpg)]
+[![qV6KeS.md.jpg](https://cxg92.top/img/1.jpg)]
+[![qV6KeS.md.jpg](https://cxg92.top/img/2.jpg)]
+[![qV6Mdg.md.jpg](https://cxg92.top/img/4.jpg)]
+[![qV6Mdg.md.jpg](https://cxg92.top/img/5.jpg)]
+[![qV6Mdg.md.jpg](https://cxg92.top/img/6.jpg)]
+
 
 
 
